@@ -1,0 +1,3 @@
+Es gibt eine Feuertaufe, welche jeder Zwerg in seinem Leben durchläuft. Infos zur Feuertaufe: Beginn des 35. Lebensjahres. Der Prüfling muss sich dem heiligen Feuer stellen, seinen Bedenken ihm gegenüber überwinden und wird dabei für einen Moment vom göttlichen Funken des Moradins berührt. Daraufhin muss jeder Prüfling einen Tag lang eine Aufgabe ausführen, welche seiner Ausbildung entspricht. Ein Runenschmied muss z.B. einen Tag lang eine Rune schmieden. Die Prüfung ist ein komplexes Bewertungssystem aus Taten, Handlungen und dem Wissensstand des Individuums.
+
+Die Feuertaufe ist der erste von zwei Schritten zum Weg des Erwachsenseins. Der zweite ist die 15 jährige Berufsausbildung und das Erreichen des 50. Lebensjahres.

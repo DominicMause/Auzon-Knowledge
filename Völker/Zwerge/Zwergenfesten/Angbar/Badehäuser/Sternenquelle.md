@@ -1,0 +1,14 @@
+Das Badehaus "Sternenquelle" ist ein weiteres beliebtes Badehaus in Angbar. Es befindet sich in einem der höher gelegenen Bereiche der Zwergenfeste und bietet einen atemberaubenden Blick auf die Sterne in der Nacht. Die Wände des Badehauses sind mit Edelsteinen und Mineralien verziert, die im Laufe der Zeit von Zwergen abgebaut wurden.
+
+Das Badehaus bietet verschiedene Arten von Bädern an, einschließlich eines kalten Beckens, das mit kristallklarem Wasser gefüllt ist, sowie eines beheizten Beckens, das von heißen Quellen gespeist wird. Die Besucher können auch verschiedene Arten von Massagen und Körperbehandlungen genießen, die von erfahrenen Zwergentherapeuten durchgeführt werden.
+
+Das "Sternenquelle" Badehaus ist bekannt für seine friedliche und entspannende Atmosphäre, sowie für seine einzigartige Einrichtung und seinen Blick auf die Sterne. Es ist ein Ort, an dem die Bewohner von Angbar und Besucher gleichermaßen Ruhe und Erholung finden können.
+
+---
+Das Badehaus "Sternenquelle" befindet sich in einem Teil des Berges, der leicht hervorsteht und eine Aussicht auf den Nachthimmel bietet. Direkt über dem Badehaus befindet sich eine Öffnung im Gestein, die als Sternenloch bezeichnet wird. Diese Öffnung ist etwa einen halben Meter breit und reicht bis zur Spitze des Berges. Wenn man während einer klaren Nacht in der "Sternenquelle" badet und durch das Sternenloch schaut, eröffnet sich ein atemberaubender Blick auf den Sternenhimmel. Die Zwergenarchitekten haben diese Öffnung speziell für diesen Zweck platziert und die Wände des Badehauses so gebaut, dass kein Licht von innen nach draußen dringt, um eine optimale Sicht zu gewährleisten.
+
+---
+Das Badehaus "Sternenquelle" befindet sich in einem Teil des Berges, der leicht hervorsteht und eine Aussicht auf den Nachthimmel bietet. Direkt über dem Badehaus befindet sich eine Öffnung im Gestein, die als Sternenloch bezeichnet wird. Diese Öffnung ist etwa einen halben Meter breit und reicht bis zur Spitze des Berges. Wenn man während einer klaren Nacht in der "Sternenquelle" badet und durch das Sternenloch schaut, eröffnet sich ein atemberaubender Blick auf den Sternenhimmel. Die Zwergenarchitekten haben diese Öffnung speziell für diesen Zweck platziert und die Wände des Badehauses so gebaut, dass kein Licht von innen nach draußen dringt, um eine optimale Sicht zu gewährleisten.
+
+---
+Das Sternenloch im Dach des Badehauses könnte theoretisch ein Sicherheitsrisiko für die uneinnehmbare Zwergenfeste darstellen, da ein möglicher Angreifer einen Weg in die Festung finden könnte, wenn er das Loch entdeckt. Um dieses Risiko zu minimieren, wurde das Sternenloch in der Mitte des Badehauses platziert und ist durch eine schwere, mit Runen verzierte Klappe gesichert, die nur von innen geöffnet werden kann. Zudem wird das Badehaus von den Zwergen bewacht und der Zugang wird streng kontrolliert, so dass nur autorisierte Personen Zutritt haben.

@@ -1,0 +1,9 @@
+Das Badehaus "Glimmerquelle" in Angbar befindet sich tief im Inneren der Zwergenfeste und ist bekannt für seine einzigartige Atmosphäre und seine besondere Gestaltung. Der Eingang ist durch einen kurzen, aber steilen Gang erreichbar, der mit Fackeln beleuchtet ist und den Gästen das Gefühl gibt, als ob sie in eine geheime Oase eingetaucht sind.
+
+Das Innere des Badehauses ist mit funkelndem Glimmerstein ausgekleidet, welcher das Licht der Kerzen und Fackeln reflektiert und eine warme, beruhigende Atmosphäre schafft. Im Zentrum des Raums befindet sich ein großer, runder Pool, der mit kristallklarem Wasser gefüllt ist und von steinernen Bänken und Säulen umgeben ist. Das Wasser wird durch ein raffiniertes System von Rohren und Pumpen auf einer angenehmen Temperatur gehalten.
+
+Umkleidekabinen aus Eichenholz sind in einer Nische in der Wand untergebracht, wo jeder Gast eine Privatsphäre genießen kann. Es gibt auch eine Sauna, in der sich Gäste entspannen und ihre Muskeln lockern können, bevor sie in den Pool eintauchen.
+
+Im "Glimmerquelle" werden auch Massagen angeboten, die von erfahrenen Zwergen-Therapeuten durchgeführt werden, die sich auf die Entspannung und Heilung von Körper und Geist spezialisiert haben. Die Behandlungsräume sind mit kuscheligen Decken, warmen Handtüchern und beruhigender Musik ausgestattet, um eine vollständige Entspannung zu ermöglichen.
+
+Das Badehaus "Glimmerquelle" ist bekannt für seine Sauberkeit und sein hervorragendes Personal. Es wird von einem erfahrenen Zwergen-Bademeister geleitet, der sicherstellt, dass jeder Gast eine angenehme und sichere Erfahrung macht. Das Badehaus ist ein beliebter Treffpunkt für Zwergen-Geschäftsleute, die hier diskutieren und Verträge abschließen, sowie für Abenteurer, die sich nach einer harten Reise entspannen wollen.

@@ -1,0 +1,11 @@
+
+-   Wie unterscheiden sich die verschiedenen Klans voneinander und welche Besonderheiten haben sie?
+-   Welche typischen Handwerke und Berufe üben die Zwerge aus?
+-   Gibt es eine bestimmte Religion oder Spiritualität, der die Zwerge folgen?
+-   Wie gehen die Zwerge mit anderen Rassen und Nationen um und wie gestalten sich ihre Beziehungen zueinander?
+-   Gibt es bestimmte Bräuche oder Feierlichkeiten, die bei den Zwergen besonders wichtig sind?
+-   Wie stehen die Zwerge zu Magie und welche Rolle spielt sie in ihrer Gesellschaft?
+-   Gibt es besondere Regeln oder Gesetze, die in der Zwergenkultur gelten?
+-   Wie verhält es sich mit der Geschlechterrolle und der Gleichberechtigung innerhalb der Zwerge?
+-   Welche Bedeutung hat der Bergbau und welche Ressourcen fördern die Zwerge?
+-   Wie gestaltet sich die Architektur der Zwergenfesten und welche besonderen Merkmale weisen sie auf?

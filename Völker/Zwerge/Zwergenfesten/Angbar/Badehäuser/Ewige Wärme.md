@@ -1,0 +1,5 @@
+Das Badehaus in der Zwergenfeste Angbars ist ein imposantes Gebäude aus grauem Stein und mit einigen dekorativen Elementen aus Messing verziert. Der Eingangsbereich ist groß und geräumig, mit hohen Decken und einer Reihe von Bänken zum Ausruhen. In der Mitte des Raumes befindet sich ein großer Pool, der von einer Vielzahl von kleinen Lampen beleuchtet wird, die an der Decke hängen.
+
+Entlang der Wände des Badehauses befinden sich eine Reihe von Türen, die zu verschiedenen Räumen führen. Es gibt private Badezimmer, in denen man alleine baden kann, sowie Gemeinschaftsbäder für diejenigen, die gerne in Gesellschaft baden. In einigen der Räume gibt es auch Saunen und Dampfbäder, um sich zu entspannen und zu erholen.
+
+Das Badehaus ist sehr gut gepflegt und wird täglich gereinigt. Es gibt auch eine Reihe von Angestellten, die sich um die Gäste kümmern und ihnen bei Bedarf Handtücher und andere Utensilien zur Verfügung stellen. Insgesamt ist das Badehaus ein Ort der Entspannung und Erholung, der von vielen Bewohnern der Zwergenfeste Angbars gerne genutzt wird.

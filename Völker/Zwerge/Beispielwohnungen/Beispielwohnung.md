@@ -1,0 +1,10 @@
+
+Die Wohnung gehört einem Zwerg namens Thorgar, einem angesehenen Handwerker und Klanvertreter in seiner Zwergenfestung. Er ist bekannt für seine Fähigkeit, exquisit gearbeitete Waffen und Rüstungen herzustellen und ist stolz darauf, dass er das Aussehen und die Funktionalität seiner Stücke perfektioniert hat.
+
+Die Wohnung befindet sich im Inneren des Berges und ist durch eine massive Tür aus Stahl und Eisen zugänglich. Beim Betreten fällt sofort die detailreiche Gestaltung der Wände auf. Thorgar hat die Wände mit Runen und Symbolen verziert, die seine Liebe zum Handwerk und sein Engagement für den Klan repräsentieren. Die Beleuchtung ist gedämpft, um eine warme und einladende Atmosphäre zu schaffen. In der Ecke des Raumes befindet sich ein Schmiedeofen, der regelmäßig genutzt wird, um neue Waffen und Rüstungen herzustellen. Der Raum ist außerdem mit einer Werkbank und einem Amboss ausgestattet, die perfekt positioniert sind, um eine effiziente Arbeitsumgebung zu schaffen.
+
+Ein kleiner Speisesaal befindet sich in einem separaten Raum, der direkt an die Werkstatt angrenzt. Hier finden sich ein massiver Tisch und Stühle aus Eichenholz. Eine Tür führt in ein Schlafzimmer, in dem sich ein bequemes Bett mit dicken Decken und Kissen befindet. Eine Kommode aus dunklem Holz bietet ausreichend Stauraum für Kleidung und andere persönliche Gegenstände.
+
+Das Badezimmer ist mit einem großen, ovalen Waschbecken ausgestattet, das aus massivem Stein gehauen wurde. Die Wände sind mit Kacheln aus weißem Marmor verziert und der Raum ist mit einem großen hölzernen Badefass ausgestattet. Ein kleiner Ofen sorgt für warmes Wasser, wenn Thorgar sich ein heißes Bad gönnt, um sich nach einem langen Tag zu entspannen.
+
+Insgesamt ist Thorgars Wohnung eine Kombination aus traditionellem Zwergenstil und modernen Elementen. Sie bietet ihm alles, was er für seine Arbeit und sein tägliches Leben benötigt und spiegelt seine Leidenschaft für das Handwerk und seine Zugehörigkeit zum Klan wider.

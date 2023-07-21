@@ -1,0 +1,9 @@
+Die Wohnung gehört einem Zwerg namens Durin, einem ehemaligen Krieger, der nun als Schmied arbeitet. Sie befindet sich in einem Wohnkomplex innerhalb einer der größeren Zwergenfesten. Die Wohnung besteht aus einem großen Raum, der als Arbeitsplatz, Essbereich und Schlafzimmer dient. Der Raum ist geräumig und gut beleuchtet, dank einiger Lampen an der Decke und dem Tageslicht, das durch ein Fenster auf der gegenüberliegenden Seite hereinkommt. Das Fenster ist klein und rund, um das Eindringen von Feinden zu erschweren, aber es lässt genug Licht herein, um den Raum zu erhellen.
+
+An der Wand gegenüber dem Fenster befindet sich ein Schmiedeofen, der den Raum mit einem warmen Glühen erfüllt. Daneben stehen verschiedene Werkzeuge und Geräte, darunter ein Amboss, Hammer und Zangen. Auf der anderen Seite des Raums befindet sich ein großer Holztisch, an dem Durin seine Mahlzeiten einnimmt und gelegentlich auch Arbeiten erledigt, die keine hitzebeständige Oberfläche erfordern. Der Tisch ist groß genug für mehrere Gäste, was darauf hindeutet, dass Durin gerne Gesellschaft hat.
+
+Neben dem Tisch gibt es ein Bett aus Stein, das in die Wand eingebaut ist. Es ist mit einem großen Fell ausgelegt und mit mehreren Decken und Kissen ausgestattet, um dem Zwergenkomfort zu entsprechen. An der Wand darüber hängen ein paar Axtgriffe, die als Dekoration dienen, aber auch als Backup-Waffen im Falle eines Angriffs verwendet werden können.
+
+An den Wänden hängen außerdem mehrere Regale, die mit verschiedenen Werkzeugen und Materialien gefüllt sind. Es gibt einen Platz für Metalle, einen für Holz, einen für Leder und einen für Stein. Jedes Regal ist sorgfältig organisiert und beschriftet, um Durin dabei zu helfen, seine Materialien schnell zu finden.
+
+Insgesamt wirkt die Wohnung praktisch und funktional, aber auch einladend und komfortabel. Durin scheint ein Zwerg zu sein, der sich auf seine Arbeit konzentriert, aber auch Wert auf Gemeinschaft und Gastfreundschaft legt.
