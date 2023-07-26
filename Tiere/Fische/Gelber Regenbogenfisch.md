@@ -1,4 +1,4 @@
-## Beschreibung
+# Beschreibung
 Ein gelb schimmernder Regenbogenfisch. Seine Schuppen glänzen in den Lichtstrahlen die durch das Wasser fallen.
 
 **Größe**: bis 120cm
